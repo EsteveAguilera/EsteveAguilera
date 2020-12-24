@@ -10,4 +10,4 @@ I am co-founder & CBO at [Fewlaps](http://fewlaps.com), where I have a lot of fu
 - 🤝 Open for collaborations.
 - 😬 I am a Fail-Learn-Repeat expert.
 - 💬 Ask me about running.
-- ⚡ Fun fact: I have water boots.
+- ⚡ Fun fact: I have rain boots.
